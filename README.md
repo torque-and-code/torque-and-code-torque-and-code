@@ -24,5 +24,5 @@
 
 ### 🤝 Connect With Me
 * 📧 **Email:** akash.raj2302@outlook.com
-* 💼 **LinkedIn:** [akash-raj-torque-code](https://linkedin.com)
+* 💼 **LinkedIn:** [akash-raj-cybersecurity](https://linkedin.com)
 *
